@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @majorketchup
+- 👀 I’m interested in crypto
+- 🌱 I’m currently learning crypto :)
+- 📫 How to reach me https://x.com/majorketchup
+- 😄 Pronouns: she
